@@ -1,0 +1,1 @@
+This portfolio serves as a record of teaching practice, curriculum leadership, scholarly engagement, and ongoing professional growth. It reflects my commitment to developing meaningful learning experiences that prepare students for thoughtful, ethical, and effective participation in their professions and communities.
